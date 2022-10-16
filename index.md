@@ -9,10 +9,27 @@ I honestly love listening to all kinds of music in general and I love working on
 [This is a picture of my subwoofer.](/PXL_20210901_002922741.jpg) In fact, I love music so much that I stripped every bit of interior from my car and I put sound deadener everywhere! In the doors, on the floors, in the ceiling, and even in the trunk! I know I'm a freak, right?!
 ![This is a picture of my empty car](PXL_20220615_223608011.MP.jpg)
 
+My favorite guitar players! Can you tell I like stratocasters?
+1. John Frusciante of the Red Hot Chili Peppers
+2. John Mayer
+3. Stevie Ray Vaughan (probably)
+4. Eric Clapton (probably)
+5. Jimi Hendrix
+
+All of the programming languages I have ever written a program with.
+* Java
+* Python
+* C
+* C++
+* Assembly
+* Does MATLAB count?
+* Bash
+* LaTeX
+
 Here's an old video of a buddy and I covering a song. Good memories. I don't have the best voice, but I certainly try my best :)
 > [Slow Dancing in a Burning Room by John Mayer](https://www.youtube.com/watch?v=Ik5fC3GvDvk)
 
-Check out this code! You know it to be true!
+Check out this code!
 ```
 if (youWant())
     youCan();
