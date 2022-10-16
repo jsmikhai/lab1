@@ -1,5 +1,5 @@
 # MY NAME IS JOSEPH MIKHAIL
-**...and I am a guitar fanatic. I also really like cars...**
+**...I am a guitar fanatic and a car enthusiast**
 
 Below is a picture containing some of the guitars in my collection from almost two years ago. Unfortunately, I do not have the SG's on the right or left side anymore, but the guitar in the middle is my most prized possession. It's a Fender American Professional Stratocastor that costed me an arm and a leg. Needless to say it is my nicest guitar. My amplifier is pretty cool as well - you can see it on the bottom right of the photo.
 
