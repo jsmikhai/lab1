@@ -8,5 +8,8 @@ Below is a picture containing some of the guitars in my collection from almost t
 I honestly love listening to all kinds of music in general and I love working on cars so I installed a subwoofer in my Toyota Corolla, image below.
 ![This is a picture of my subwoofer.](PXL_20210901_002922741.jpg)
 
-In fact, I love music so much that I stripped every bit of interior from the inside of my car and I put sound deadener everywhere! In the doors, on the floors, in the ceiling, and even in the trunk! I know I'm a freak, right?!
+In fact, I love music so much that I stripped every bit of interior from my car and I put sound deadener everywhere! In the doors, on the floors, in the ceiling, and even in the trunk! I know I'm a freak, right?!
 ![This is a picture of my empty car](PXL_20220615_223608011.MP.jpg)
+
+Here's a [funny video](https://www.youtube.com/watch?v=Ik5fC3GvDvk) of a buddy and I covering
+> Slow Dancing in a Burning Room by John Mayer
