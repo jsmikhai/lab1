@@ -1,7 +1,7 @@
 # MY NAME IS JOSEPH MIKHAIL
 **I am a guitar fanatic and a car enthusiast.**
 
-Below is a picture containing some of the guitars in my collection from almost two years ago. Unfortunately, I do not have the SG's on the right or left side anymore, but the guitar in the middle is my most prized possession. It's a *Fender American Professional Stratocastor* that costed me an arm and a leg. Needless to say it is my nicest guitar. My amplifier is pretty cool as well - you can see it on the bottom right of the photo.
+Below is a picture containing some of the guitars in my collection from almost two years ago. Unfortunately, I do not have the SG's on the right or left side anymore, but the guitar in the middle is my most prized possession. It's a *Fender American Professional Stratocaster* that costed me an arm and a leg. Needless to say it is my nicest guitar. My amplifier is pretty cool as well - you can see it on the bottom right of the photo.
 
 ![This is a picture of some of my guitars.](PXL_20210113_032003358.MP.jpg)
 
@@ -14,6 +14,8 @@ My favorite guitar players! Can you tell I like *stratocasters*?
 
 Here's an old video of a buddy and I covering a song. Good memories. I don't have the best voice, but I certainly try my best :)
 > [Slow Dancing in a Burning Room by John Mayer](https://www.youtube.com/watch?v=Ik5fC3GvDvk)
+
+I want to buy a guitar like [this](https://reverb.com/item/59300779-fender-stratocaster-solid-body-electric-guitar-1960-ser-53551-original-brown-tolex-hard-shell-case) one day.
 
 ## A bit of both passions!
 
