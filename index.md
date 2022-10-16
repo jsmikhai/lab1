@@ -15,7 +15,7 @@ My favorite guitar players! Can you tell I like *stratocasters*?
 Here's an old video of a buddy and I covering a song. Good memories. I don't have the best voice, but I certainly try my best :)
 > [Slow Dancing in a Burning Room by John Mayer](https://www.youtube.com/watch?v=Ik5fC3GvDvk)
 
-I want to buy a guitar like [this](https://reverb.com/item/59300779-fender-stratocaster-solid-body-electric-guitar-1960-ser-53551-original-brown-tolex-hard-shell-case) one day.
+I want to buy a guitar like [this](https://reverb.com/item/59300779-fender-stratocaster-solid-body-electric-guitar-1960-ser-53551-original-brown-tolex-hard-shell-case) one day, but I probably never will.
 
 ## A bit of both passions!
 
