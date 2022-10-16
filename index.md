@@ -18,7 +18,7 @@ Here's an old video of a buddy and I covering a song. Good memories. I don't hav
 ## A bit of both passions!
 
 I listen to all kinds of music and always prefer a mix with good bass. Since I love working on cars, I installed a subwoofer in my Toyota Corolla.
-[This is a picture of my subwoofer.](/PXL_20210901_002922741.jpg) In fact, this last summer I went above and beyond, stripping every bit of the interior from my car and I putting sound deadener everywhere! In the doors, on the floors, in the ceiling, and even in the trunk! [I'm a freak, right?!](/PXL_20220615_223608011.MP.jpg) I hope to one day utilize my knowledge of cars in the context of software engineering.
+[This is a picture of my subwoofer.](/PXL_20210901_002922741.jpg) In fact, this last summer I went above and beyond, stripping every bit of the interior from my car and putting sound deadener everywhere! In the doors, on the floors, in the ceiling, and even in the trunk! [I'm a freak, right?!](/PXL_20220615_223608011.MP.jpg) I hope to one day utilize my knowledge of cars in the context of software engineering.
 
 ## Programmer Jo
 
